@@ -1,1 +1,0 @@
-# rgnyygmx.github.io
